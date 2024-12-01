@@ -33,6 +33,8 @@ Please follow the rules below:
 |🤑|[Reddit Growth Bundle](https://www.bynapkin.com/guides/reddit) | Complete Reddit growth package combining the comprehensive Reddit Marketing Guide ($99 value) with SubredditTraffic.live Premium ($49 value). Includes traffic analytics dashboard, subreddit growth insights, and business strategy templates. The guide covers everything from Reddit fundamentals to advanced growth tactics, while the premium tool provides real-time traffic insights and analytics.| 40% off the complete bundle ($89 instead of $148)|
 |🤑|[Flux AI](https://flux1.ai/) | Flux AI Image Generator By Flux.1 AI | **50%** OFF with code **BF5** |
 |🤑|[Sitely](https://sitely.app/) | Visual + AI Website Builder | **50%** OFF NO CODE REQUIRED ** |
+|💸|[Typogram](https://typogram.co/) | Logo and Brand Builder | **40%** OFF with code  **LIGATURE** |
+|🤑|[Typogram Studio](https://typogram.co/Studio/) | Typography Graphic Design App | **50%** OFF with code  **PREORDER** |
 
 
 
